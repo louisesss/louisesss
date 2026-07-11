@@ -5,7 +5,6 @@ DEVIOUS
 
 
 
-https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSRZAIMYJgZIAhxiqBDaG5KKJ3pw8Fv_-VsCGEp__SgbQ&s=10
 I will get you out of this
 And maybe, I will see you again.
 But for now, Its goodbye.
