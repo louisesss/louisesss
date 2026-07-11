@@ -6,11 +6,12 @@ DEVIOUS
 
 
 # SPOILERS DOWN BELOW 
-#  [
-# [
-#  [
-# [
-#  [ 
+**devious duo isalive and he althybtw! theyre not dead not doomed,**
+**they have a good friendship that wont ever be broken**
+**mapiccs loyaltly was worth something!**
+
+
+.
 
 Mapicc?
 
