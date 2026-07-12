@@ -1,0 +1,22 @@
+[watch.htm](https://github.com/user-attachments/files/29933785/watch.htm)<div align="center">
+
+
+```text
+╔══════════════════════════════════════╗
+                                      
+  HELLO, WORLD               
+                                        
+         supppp brooo!!1!!!!!!!            
+      thz is my github profile yo..    
+               ok bye !                        
+╚═══                                ═══╝
+```
+
+### 
+
+*'How My Best Friend Became My
+ ***`Enemy.`"***
+```
+<img width="800" height="800" alt="Devotion_Duo" src="https://github.com/user-attachments/assets/ce7c9238-7207-4f85-9ed8-8863f44e0699" />
+
+</div>
